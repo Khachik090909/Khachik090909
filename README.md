@@ -1,4 +1,2 @@
- 👋 Hi, I’m Khachik 👋
- 
-
+ 👋 Hi, I’m Khachik
 
